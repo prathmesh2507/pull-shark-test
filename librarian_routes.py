@@ -1,3 +1,3 @@
 #coming soon#
-#stay tune
+#stay tuned
 #
